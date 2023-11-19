@@ -13,7 +13,7 @@
 
 🔎 Também sou curioso sobre [Meio Ambiente, Filosofia, Tecnologia,ingles]
 
-✒️ Eu gosto de no meu tempo livre [Video-Games, Futebol, Board Games, sair com os Amigos, Ouvir Musicas];
+✒️ Eu gosto de no meu tempo livre [Video-Games, Futebol, Jogos de Tabuleiro, Sair com os Amigos, Ouvir Musicas];
 
 ### Eu estou estudando... 🧩
 
